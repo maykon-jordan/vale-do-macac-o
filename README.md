@@ -1,0 +1,1 @@
+# vale-do-macac-o
